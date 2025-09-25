@@ -3,6 +3,7 @@
 Who am I?
 I'm Freya. I started playing Siege since Operation Blood Orchid or White Noise. My highest rank is Champion. I understand everyone's frustration when you have a bad PC with low FPS, so I spend a lot of time researching and testing these tweaks to maximize FPS in Rainbow Six Siege: X. Please subscribe to my YouTube channel as a sign of appreciation. Now go grind KING!👑
 
+Tiktok: https://www.tiktok.com/@freyar6_?lang=en
 YouTube Channel: https://www.youtube.com/@freyar6
 
 #LIST OF TWEAKS
